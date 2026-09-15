@@ -8,7 +8,7 @@ Actualmente busco una oportunidad como desarrollador web junior para seguir crec
 
 📫 **Contacto**
 
-[LinkedIn](https://www.linkedin.com/in/alvaro-demi/)
+[LinkedIn](https://www.linkedin.com/in/alvaro-demi/) alvarodemiguel1997@gmail.com 
 
 ## 🛠️ Tecnologías
 
